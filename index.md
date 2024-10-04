@@ -1,2 +1,3 @@
-## uhh hey there
-Welcome to a website probably no one will give a shit about anyway
+## Brotheringbullshit's place
+erm. hi.
+this is where i do some shit with the source here, mess around. dont know.
